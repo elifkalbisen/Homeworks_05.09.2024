@@ -1,2 +1,2 @@
-05.09.2024 Tarihli ödevlerimi içerir.
+# 4. hafta ödevlerimi içerir.
  
