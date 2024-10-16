@@ -1,2 +1,2 @@
-# Homeworks_05.09.2024
+05.09.2024 Tarihli ödevlerimi içerir.
  
